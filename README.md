@@ -1,1 +1,0 @@
-## Kumari-Vaishnavi-Resume
